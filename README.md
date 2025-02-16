@@ -14,3 +14,5 @@ another day, another job hunt. by the way, it's valentines today.
 it's Feb 15, 2025 another day to be productive 
 
 Feb 15, 2025 - Wash Day
+
+Feb 16, 2025 - Keep moving forward. many things to do, medical, cedula.
