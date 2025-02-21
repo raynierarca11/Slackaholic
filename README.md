@@ -18,3 +18,5 @@ Feb 15, 2025 - Wash Day
 Feb 16, 2025 - Keep moving forward. many things to do, medical, cedula.
 
 Feb 18, 2025 - Keep moving forward.
+
+Feb 22, 2025 - Sigh.
