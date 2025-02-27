@@ -3,7 +3,7 @@ Slack
 
 It's a project base named slackaholic
 
-Its ongoing
+Its ongoing..
 
 
 another day another productive day
