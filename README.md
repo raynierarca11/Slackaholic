@@ -46,3 +46,5 @@ March 17
 March 18, 2025 - Before birthday ni nanay, 6 am akon duty nag in ko 5:40am then si alexander heramis ang naka duty, oficially resign na si sir renz, then new IT then new OJT wala ko kabalo ano tudlo ko sa OJT diosko kag gasala pako sa process sang reimaging. 5:40 am ko in out ko mga 5:10, diosko nga duty sobra pako sa may ginagatas. then nagpashorthaircut si manang jen.
 
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
+
+March 20, malate Ako sa work 5:51 Nako gin bugtaw pako ni tatay nga gin hambalan sa ni nanay
