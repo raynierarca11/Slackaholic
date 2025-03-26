@@ -51,3 +51,6 @@ March 20, malate Ako sa work 5:51 Nako gin bugtaw pako ni tatay nga gin hambalan
 March 21, 2025 - out at 4;20)
 March 22, 2025 - Namintura kwarto ko with manang faith.
 March 23, 2025 - Sunday, mass with nanay, 
+March 24, 2025 - Monday birthday adi nakavdlebrate Ako
+March 25, 2025, - duty Ako. overtime meet with long time friend of tita faith returning her asset pc from Guimaras.
+March 26, 2025 - Zimbra issue today
