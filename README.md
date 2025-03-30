@@ -54,3 +54,5 @@ March 23, 2025 - Sunday, mass with nanay,
 March 24, 2025 - Monday birthday adi nakavdlebrate Ako
 March 25, 2025, - duty Ako. overtime meet with long time friend of tita faith returning her asset pc from Guimaras.
 March 26, 2025 - Zimbra issue today
+
+March 30, 2025 - Church at 4:52 at Jaro Cathedral Church, then buy food
