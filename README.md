@@ -57,3 +57,5 @@ March 26, 2025 - Zimbra issue today
 
 March 30, 2025 - Church at 4:52 at Jaro Cathedral Church, then buy food
 March 31, 2025 - Its 12:00 noon duty. its 5:04 am here. ma schedule adjustment ko 
+
+April 2, 2025 - it's 5:27 am nanay go to church 
