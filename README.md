@@ -19,7 +19,7 @@ Feb 16, 2025 - Keep moving forward. many things to do, medical, cedula.
 
 Feb 18, 2025 - Keep moving forwa rd.
 
-Feb 22, 2025 - Sigh.
+Feb 22, 2025 - Sigh.cc
 
 Feb 23, 2025 - [Sunday] 
 Feb 24, 2025 - (Monday)
