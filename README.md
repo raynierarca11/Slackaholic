@@ -58,5 +58,6 @@ March 26, 2025 - Zimbra issue today
 March 30, 2025 - Church at 4:52 at Jaro Cathedral Church, then buy food
 March 31, 2025 - Its 12:00 noon duty. its 5:04 am here. ma schedule adjustment ko 
 
-April 2, 2025 - it's 5:27 am nanay go to church 
-April 11, 2025 - Friday! pero may duty pako buwas Kay gin adjust
+April 2, 2025 - it's 5:27 am nanay go to church
+April 10, 2025 - duty ni Alexander 12-9pm, kadto ko Kay Aron mga 3:40, pagunting Siya fadeground, nagkadto kami ventuno, meet with mart, Patrick and Siya. Puli kami mga 6:30 then Puli ko 8:00 pm 
+April 11, 2025 - Friday! pero may duty pako buwas Kay gin adjust.
