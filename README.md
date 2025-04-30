@@ -7,7 +7,7 @@ Its ongoing..edee..
 hey
  yeahssdes..
 another day another productive day
-dsddsd
+dsddsd.
 another day, another job hunt. by the way, it's valentines today...
 eaweawe
  eeeeeeds...
@@ -63,3 +63,5 @@ April 10, 2025 - duty ni Alexander 12-9pm, kadto ko Kay Aron mga 3:40, pagunting
 April 11, 2025 - Friday! pero may duty pako buwas Kay gin adjust.
 
 April 18, 2025.. 4:36 am aga pa nanay nag pa hibao an to attend, it's Friday today.
+
+May 1, 2025 - 3:54 am, hello self you wanted to be web developer, just like lerry as of today he started his journey as jr web developer. 
