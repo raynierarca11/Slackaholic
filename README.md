@@ -65,3 +65,5 @@ April 11, 2025 - Friday! pero may duty pako buwas Kay gin adjust.
 April 18, 2025.. 4:36 am aga pa nanay nag pa hibao an to attend, it's Friday today.
 
 May 1, 2025 - 3:54 am, hello self you wanted to be web developer, just like lerry as of today he started his journey as jr web developer. 
+
+May 8, 2025 - 6:51 am. keep moving forward
