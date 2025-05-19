@@ -11,7 +11,7 @@ dsddsd.
 another day, another job hunt. by the way, it's valentines today.....
 eaweawe
  eeeeeeds.....
-it's Feb 15, 2025 another day to be productive 
+it's Feb 15, 2025 another day to be produ..ctive 
 
 Feb 15, 2025 - Wash Day.....
 g
@@ -67,3 +67,4 @@ April 18, 2025.. 4:36 am aga pa nanay nag pa hibao an to attend, it's Friday tod
 May 1, 2025 - 3:54 am, hello self you wanted to be web developer, just like lerry as of today he started his journey as jr web developer. 
 
 May 8, 2025 - 6:51 am. keep moving forward
+May 19, 2025- start na learning programming!! gano kapa yaaa?!
