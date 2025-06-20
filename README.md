@@ -69,3 +69,5 @@ May 1, 2025 - 3:54 am, hello self you wanted to be web developer, just like lerr
 May 8, 2025 - 6:51 am. keep moving forward
 May 19, 2025- start na learning programming!! gano kapa yaaa?!
 May 29, 2025- tita neng to iloilo city (narita)
+
+June 20, 2025 - overtime Naman ko kina 3 hrs mga 9am.nako kapuli. 12 hrs, 
